@@ -1,3 +1,3 @@
-comme une envie de ne pas aller en socio
-c'est l'heure du cafe
-il est neuf heure vignt sept
+Comme une envie de ne pas aller en socio
+c'est l'heure du café !
+il est neuf heure vignt sept...
